@@ -1,2 +1,2 @@
-# nikitaapraj.github.io
+# Nikita Apraj
 Hi there!
